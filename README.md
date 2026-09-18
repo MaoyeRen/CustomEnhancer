@@ -1,2 +1,2 @@
 # CustomEnhancer
-Coming soon.
+Coming soon when manuscript is accepted.
